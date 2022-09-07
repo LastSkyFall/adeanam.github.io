@@ -1,1 +1,0 @@
-# adeanam.github.io
